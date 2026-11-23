@@ -1,1 +1,0 @@
-# USTC-DofE-Award-Journey
